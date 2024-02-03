@@ -1,2 +1,2 @@
 # maleesha
-in class create
+i am gay
